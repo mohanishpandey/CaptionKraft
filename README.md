@@ -1,5 +1,5 @@
 
-![Ck](https://github.com/mohanishpandey/CK/assets/83598114/3ad1ca9b-9a78-4ec3-a1ac-c90d3d4ca64a)
+<img width="869" alt="CK img" src="https://github.com/mohanishpandey/CaptionKraft/assets/83598114/6bebaee1-bc3b-4a87-bb15-012870ef3bfe">
 
 
 
